@@ -1,4 +1,4 @@
-# 
+# premium birdeye sniper bot | meme-coin-scanning + token-launch-monitoring is the best birdeye sniper bot, featuring meme-coin-scanning and token-launch-monitoring. Fast, smart,
 
 
 
